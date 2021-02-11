@@ -1,1 +1,2 @@
-# La-s-curit-du-coffre-fort
+Un petit coffre-fort est un outil de stockage utile qui peut contenir jusqu’à 3 litres. Avec cette dimension, le coffre-fort est facile à dissimuler. Il peut contenir les bijoux et les papiers importants. Un coffre-fort peut fonctionner avec une combinaison ou avec une clé. 
+Avoir un coffre-fort permet de mettre tous les objets de valeurs en toute sécurité. Le niveau de sécurité d’un coffre-fort dépend de l’épaisseur des parois ainsi que le mode de fixation. Pour optimiser la sécurité d’un coffre-fort, il vaut mieux faire appel à un professionnel en sécurité. Ce genre de professionnel est spécialisé dans l’ouverture d’un coffre-fort en cas d’oubli du mot de passe. Il peut aussi intervenir pour installer ou pour ouvrir une porte blindée. 
